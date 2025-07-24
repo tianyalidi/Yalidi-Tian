@@ -1,3 +1,3 @@
 Yalidi-Tian
-Email: your_email@example.com  
+Email: yalidi.tian@gmail.com  
 Welcome to my homepage!
